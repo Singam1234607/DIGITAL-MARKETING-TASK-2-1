@@ -147,7 +147,7 @@ Samsung is a global leader in electronics, smart devices, and innovation. The br
 
 ## OUTPUT
 
-
+[Samsung_Content_Marketing_Strategy.docx](https://github.com/user-attachments/files/21367461/Samsung_Content_Marketing_Strategy.docx)
 
 
 
